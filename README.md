@@ -1,1 +1,0 @@
-# shreyamotors.github.io
